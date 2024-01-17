@@ -1,1 +1,1 @@
-# tc_gatrends
+Name Surname: Nigar Alizada, Elifcan Yasar
